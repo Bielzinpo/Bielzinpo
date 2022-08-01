@@ -2,6 +2,8 @@
 
 😁Estudante do segundo ano do ensino médio na satc
 
+📚Atualmente estudando mais sobre programação no curso de informática
+
 🤠Você pode chegar até mim pela minha rede social do instagram @bielzinpo_
 
 🎮Amo escutar musica e jogar jogos digitais yeah 
