@@ -1,19 +1,21 @@
-😎Prazer meu consagrado/a sou o Gabriel mas alguns me chamam de biel, mokkay, mp, suco tang, chiclete, mustang ou cegueta😎
+😎Prazer meu consagrado/a sou o Gabriel mas alguns me chamam de biel, mokkay, mp, suco tang, chiclete, mustang ou cegueta
 
-😁estudante do segundo ano do ensino médio na satc😁
+😁Estudante do segundo ano do ensino médio na satc
 
-🤠você pode chegar até mim pela minha rede social do instagram @bielzinpo_🤠
+🤠Você pode chegar até mim pela minha rede social do instagram @bielzinpo_
 
-🤔alguns fatos sobre mim:🤔
-1 - Curto muito jogar jogos digitais yeah 
-2 - Curto muito escutar musicas
-3 - gosto de sair e jogar com os amigos
-4 - sou flamenguista heheh
-5 - gosto de ver filmes e séries
+🎮Amo escutar musica e jogar jogos digitais yeah 
 
-🤯meu filme favorito é em ritmo de fuga e minhas 3 musicas favoritas são:🤯
-1 - Lil Fuub - Super Idol
-2 - NIKK - Guaraná
-3 - virgingod - perdão
+🚶‍♂️Gosto de sair e jogar com os amigos
 
-![gif-22163357233543](https://user-images.githubusercontent.com/110418116/182229870-708fdb27-765c-4ce9-88e4-ee9681d912fb.gif)
+⚽Sou flamenguista heheh
+
+🐱‍👤Gosto de ver filmes e séries
+
+🐅Moro em criciúma
+
+♍Sou do signo de virgem kk
+
+✨Aprecie meu/minha lidozo/lindeza -> https://youtu.be/6hbVjTQTFXQ <-
+
+![Smiling Leo Perfect GIF](https://user-images.githubusercontent.com/110418116/182230683-add2c47f-09bf-44e6-a4ca-556bfcc42cdf.gif)
