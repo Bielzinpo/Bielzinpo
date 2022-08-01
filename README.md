@@ -16,3 +16,4 @@
 2 - NIKK - Guaraná
 3 - virgingod - perdão
 
+![gif-22163357233543](https://user-images.githubusercontent.com/110418116/182229870-708fdb27-765c-4ce9-88e4-ee9681d912fb.gif)
