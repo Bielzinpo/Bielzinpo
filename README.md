@@ -6,7 +6,9 @@
 
 🤠Você pode chegar até mim pela minha rede social do instagram @bielzinpo_
 
-🎮Amo escutar musica e jogar jogos digitais yeah 
+🔊Amo escutar musica, sou bem eclético kk
+
+🎮Amo jogar jogos digitais yeah 
 
 🚶‍♂️Gosto de sair e jogar com os amigos
 
