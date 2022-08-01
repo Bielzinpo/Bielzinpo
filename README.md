@@ -12,7 +12,7 @@
 
 🚶‍♂️Gosto de sair e jogar com os amigos
 
-⚽Sou flamenguista heheh
+⚽Sulista e flamenguista heheh
 
 🐱‍👤Gosto de ver filmes e séries
 
