@@ -1,4 +1,4 @@
-😎Prazer meu consagrado/a sou o Gabriel vulgo biel, mokkay, mp, suco tang, chiclete, mustang ou cegueta
+😎Prazer meu consagrado/a sou o Gabriel, apelidos, biel, mokkay, mp, suco tang, chiclete, mustang ou cegueta
 
 😁Estudante do segundo ano do ensino médio na satc
 
