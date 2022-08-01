@@ -16,5 +16,3 @@
 2 - NIKK - Guaraná
 3 - virgingod - perdão
 
-
-![Uploading 8QKc.gif…]()
