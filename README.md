@@ -1,6 +1,6 @@
-😎Prazer meu consagrado/a sou o Gabriel, apelidos, biel, mokkay, mp, suco tang, chiclete, indio ou cegueta
+😎Prazer meu consagrado/a sou o Gabriel, apelidos: biel, MP, sucotang
 
-😁Estudante do segundo ano do ensino médio na satc
+😁Estudante do terceiro ano do ensino médio na satc
 
 📚Atualmente estudando mais sobre programação no curso de informática
 
