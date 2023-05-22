@@ -14,7 +14,7 @@
 
 ⚽Sulista e flamenguista
 
-🐱‍👤Adoro filmes e séries
+👤Adoro filmes e séries
 
 🐅Moro em criciúma
 
